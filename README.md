@@ -3,6 +3,12 @@ Recently, registration for loans has become an enormous issue so we chose this d
 
 
 Raseel Alrawdhan | 443200592
+
+
 Shahad Alfahad   | 443200491
+
+
 Raghad Alharkan  | 443200477
+
+
 Majd Aljuraysi   | 433200637
